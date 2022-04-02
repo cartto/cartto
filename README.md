@@ -1,3 +1,3 @@
-# I am a lua developer currently working on a scripting language gonna take a while but i got this
+# i use lua and python alot and hope to make usefull stuff later on
 # my discord is carto#2372
 # i want to learn c++ and js and python but its all painfull
