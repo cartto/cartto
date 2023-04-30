@@ -1,4 +1,4 @@
-# Me fr
+# Pro paster
 ## Socials
 Discord: quack#9866
 ## Languages i know 
