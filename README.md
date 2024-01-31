@@ -6,7 +6,7 @@ Python C++ lua
 ## Learning
 Rust and C++
 ## Motto
-who needs a gf when u chase the back - Creator of Sony;;
+who needs a gf when u chase the bag - Creator of Sony;;
 
 
 Pro Coder!
